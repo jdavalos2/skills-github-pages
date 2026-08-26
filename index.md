@@ -1,2 +1,2 @@
-# Welcome to my Fantasy Football blog! Fantasy Footballer
+# Welcome to my Fantasy Football blog! Fantasy Footballers
 ---
